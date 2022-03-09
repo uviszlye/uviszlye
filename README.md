@@ -1,0 +1,6 @@
+- new in coding.
+- more of a artist.
+- working on:
+-  learning stuff
+-   complex dress up game thing for now
+-   isekai visual novel rpg
